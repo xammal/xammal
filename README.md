@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @xammal
 - 👀 I’m interested in free staff
 - 🌱 I’m currently learning nothing. :)
-- 💞️ I’m looking to collaborate on you. :)
+- 💞️ I’m looking to crush on you!
